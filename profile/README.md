@@ -56,7 +56,7 @@ We’re not just developers—we’re **builders of solutions**. Whether it’s 
 
 ## 👥 Team & Collaboration
 
-- **Hassan Ali Mehdi** – Founder & CEO
+- **Hassan Ali Mehdi** – Founder & CEO  
   Tech visionary, AI specialist, and community leader.
 
 - **Zainab Hamid** – Co-Founder  
