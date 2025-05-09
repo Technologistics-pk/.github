@@ -72,10 +72,10 @@ To become Pakistan’s leading innovation hub by offering **AI-first solutions**
 ## 📬 Let’s Work Together
 
 - 🌐 Website: [technologistics.pk](https://technologistics.pk)
-- 📧 Email: technologistics.pk@gmail.com  
-- 📱 WhatsApp: +92-3XX-XXXXXXX  
+- 📧 Email: contact@technologistics.pk
+- 📱 WhatsApp: +92-327-4320706  
 - 📸 Instagram: [@technologistics.pk](https://instagram.com/technologistics.pk)  
-- 💼 LinkedIn: [linkedin.com/company/technologistics](https://linkedin.com/company/technologistics) *(placeholder)*
+- 💼 LinkedIn: [linkedin.com/company/technologistics-pk](https://linkedin.com/company/technologistics-pk)
 
 ---
 
